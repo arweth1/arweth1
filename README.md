@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @arweth1
 - 👀 I’m interested in crypto 
-- and all
+
 
 <!---
 arweth1/arweth1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
