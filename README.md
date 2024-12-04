@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @arweth1
 - 👀 I’m interested in crypto
-- and more
+- and all
 
 
 <!---
