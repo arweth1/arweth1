@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arweth1
-- 👀 I’m interested in crypto
+- 👀 I’m interested trading
   
 
 
