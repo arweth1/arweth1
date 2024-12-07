@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arweth1
-- 👀 I’m interested trading
+- 👀 I’m interested by farming too
   
 
 
